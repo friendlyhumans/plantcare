@@ -1,1 +1,1 @@
-# Plant Care
+# Plant Care 🌱
